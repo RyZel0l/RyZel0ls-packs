@@ -11,4 +11,7 @@ Bacon bois [blue]: https://skins.osuck.net/skins/1648?v=0
 Rafis HDDT: https://skins.osuck.net/skins/166?v=0
 (NOT MY PACK!!)
 
+BTMC Standard: https://github.com/BTMC-techteam/skins/releases/latest/download/-.BTMC.Freedom.Dive.osk
+(NOT MY PACK!!)
+
 Will always be updated!!

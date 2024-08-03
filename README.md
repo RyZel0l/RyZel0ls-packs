@@ -3,7 +3,9 @@ The packs that RyZel0l uses.
 
 
 Blueysred:
-https://www.mediafire.com/file/1gwhymrqczh2ham/-_%25E1%259A%2596BluesRed%25E1%259A%2596_-.osk/file
+https://www.mediafire.com/file/1gwhymrqczh2ham/-_%25E1%259A%2596BluesRed%25E1%259A%2596_-.osk/file 
+
+(NOT UPDATED!! ^^)
 
 Bacon bois [blue]: https://skins.osuck.net/skins/1648?v=0 
 (NOT MY PACK!!) 
